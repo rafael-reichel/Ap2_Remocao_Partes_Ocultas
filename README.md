@@ -1,0 +1,1 @@
+# Ap2_Remocao_Partes_Ocultas
